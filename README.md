@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+*time isn't wasted if you like wasting it
+*regret is byproduct ,why regrets if like doing it 
 
 yoouovi
 
